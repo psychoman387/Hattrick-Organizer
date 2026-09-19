@@ -210,4 +210,4 @@ Hattrick Organizer is offered as a **full free version** with all features and u
 Ready to take your Hattrick management to the next level? **Download Hattrick Organizer free now and start your journey towards soccer success!**
 
 ---
-**Last updated:** 2026-09-19 10:04:41 UTC
+**Last updated:** 2026-09-19 14:04:59 UTC
